@@ -40,7 +40,7 @@ Test this in a single player world
 
 because server thinks you are a bot and
 
-kicks you are bans you
+kicks you or bans you
 
 
 
