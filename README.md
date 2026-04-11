@@ -48,6 +48,7 @@ Sub to my channel pls!
 
 [Racoon Dude YT](https://www.youtube.com/@racoondudecanplay)
 
+made by claude and chatgpt
 
 
 \----------------**THATS-SOLVE**-------------------
